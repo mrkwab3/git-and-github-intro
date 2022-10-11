@@ -1,2 +1,4 @@
 # playlist
-3
+
+Chicago - Michael Jackson
+Wish - Diplo, Trippie Redd
